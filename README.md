@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning nothing...
 - 💞️ I’m looking to collaborate on some companies
 - 📫 How to reach me you don't what it.???
-- ⚡ Fun fact: sam gives light
+- ⚡ Fun fact: sam gives bright light
 
 <!---
 Lankalapallirajesh/Lankalapallirajesh is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
